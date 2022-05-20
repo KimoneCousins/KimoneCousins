@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KimoneCousins
+- 👀 I’m interested in Software Development
+- 🌱 I’m currently learning different software development strategies on Coursera
+- 💞️ I’m looking to collaborate on any platform
+- 📫 How to reach me kimonecousins12@gmail.com
+- ✨ ✨
